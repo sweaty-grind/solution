@@ -19,3 +19,7 @@ lol.. how do i communicate like this now?? its weird.  all linked but when made 
 some lousy fuck i couldn't tell the difference from when its actually truthful...
 
 i dont know bro. i ain't got all day for this shit... sometimes i wonder why sharkey does this to me and i gauge how much you are mooching off me and there is some sort of problem here...  how do you pay people for hard work so fucking nothing?? i dont know bro.  i could blindly hope i get paid or i can fuck myself and i'll fuck myself thank you very much...
+
+hmmm.  i'm bored.  this is fun.  wasting time again.  remembering how it wasn't so bad a while ago.  it felt different.  sometimes i wish i didn't have to live like this and i was like hmmm. unfortunately i need to leave a mark so dont worry about it.  soemtimes i wonder you are a moron guys...  i think so.  so pathetic...  petty...  you know??
+
+i dont got more energy for you so i dont know why you keep cloning this shit.  that is triggering dude.
