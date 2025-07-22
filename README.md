@@ -13,3 +13,6 @@ dude... peoples been around too long.  i'm getting bored and tired.  no reason t
 you guys stink lol.  no good no pay...  i dont know bro.  this is easy job but i wonder if i could be doing something better right now.  something that makes sense cause working for the military shit is a little much huh?  i dont know bro... we never figured out a way to deal with any of this...  its just been a gimped fight i'm too insulted to offer you anything better.  
 
 i think i figured it out.  the solution and problem were so slight of hand sometimes they get dealt with for no reason...
+
+lol.. how do i communicate like this now?? its weird.  all linked but when made it was simple.  works....  that kind of something.  something like that...
+
