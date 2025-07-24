@@ -23,3 +23,19 @@ i dont know bro. i ain't got all day for this shit... sometimes i wonder why sha
 hmmm.  i'm bored.  this is fun.  wasting time again.  remembering how it wasn't so bad a while ago.  it felt different.  sometimes i wish i didn't have to live like this and i was like hmmm. unfortunately i need to leave a mark so dont worry about it.  soemtimes i wonder you are a moron guys...  i think so.  so pathetic...  petty...  you know??
 
 i dont got more energy for you so i dont know why you keep cloning this shit.  that is triggering dude.
+
+# next
+
+oh well i am flabbergasted that i'm doing this for free...  nah bro.  don't worry about it. i just needed a way to survive the job world.  after that you are released from my issues.  i'm not gonna give you all these chances in the future...  sometimes i swallow the fisher casting the bait lol...
+
+hmm. i think all the struggles i've been going through make this not make sense. too wild of a story lol...
+
+i'm not sure dude.  i do this for free yet i am cursed throughout the land.  you either a mascot or you are the one...  which one is more better???  i would say mascot cause it will happen and not the one cause thats too rare.  see?  normal thoughts...
+
+so you know. i am tired of your nit picking into my life...  i dont know bro... i dont give a shit what you do to me lol.
+
+anyways, its another day and things are happy.  i dont know a better way to live.  3 weeds at the AM is good.  lol morning sir...
+
+so maybe i am being deceptive...  i dont know bro.  i accidentally did it and you died for it and i'm like before you feel guilty think of the circumstances...  this is trouble moron.  i guess you got what you wanted i woulda given you this shit for free.  weird mofo.  i mean under these "work" conditions, i would say you are stupid simply said.  did you enjoy the free knowledge while i did what i did with the fishies not breathing lol... i dont know bro.  this is free... its not with me bro.  its with you...
+
+hmm. i feel like a villain coming here lol...
