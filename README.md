@@ -53,3 +53,13 @@ so its another day...  we live in god's grace and one day you will not offer me 
 guys... i think i need too much weed... what is the circumstances that i need to be like this for?  oh well i couldn't figure out right now what is the problem.  so i should have went out and bought a bunch of monsters and stuff.  i just dont got the energy bro.
 
 i just type this out to read my logic.  fixes problems with memory loss...  i wonder sometimes if this is fair to even bug me about the law here lol...
+
+# monster
+
+i dranking monsters again...  hapy day happy way... no problems  lol...  i think we just used herbs this time around???  the monsters are effective.  i dont know bro. i'm cautious of this trap sharkey is setting me up for again.  did you know that i didn't drink any water other than pop for like a year???  i mean i do crazy things but this one is special.
+
+so i finished the first one.  waking up again. things are going good.  somethings somethings.. i wish i knew better...  oh well doh i am faithful to make original statements on space tourism.  i told you this is not good but you just like breaking the rules and i have to pay for it lol...  liabilities galore.  you know?? cause somewhere it did make sense and we lost track of life cause this pain is for real. i dont know why i can't have 6 foot is all i'm saying...
+
+perhaps this time around we have been doing too much work.  for free with promises of compensation...  i dont know man. i dont give a shit it just looks like a good lottery ticket.  and its more real than needed cause there was no way in the real world...  things like this or some shit...  you did your worst and i am still here doing this...
+
+you know its a little scary sometimes what you do to me.  like it was all for nothing.  i really hate that from experience lol...
